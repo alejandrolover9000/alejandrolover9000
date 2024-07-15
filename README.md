@@ -1,3 +1,6 @@
+![image](https://github.com/user-attachments/assets/44591eb4-e1ed-47c6-b316-06829fdab1cf)
+
+
 ASHES 🦈
 
 ˚₊· ͟͟͞͞➳❥ heathnoah stan here
