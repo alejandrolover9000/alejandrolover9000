@@ -18,7 +18,7 @@ ASHES 🦈
 
 ✎ E, J, & A <3 LOVE YOU GUYS!! /PLATONIC 💕
         
-        local aleheather/heathnoah fan
+local aleheather/heathnoah fan
 
 ˚₊· ͟͟͞͞➳❥ whisp to interact w/ me or come up! No need to worry i won't bite 😈
 
