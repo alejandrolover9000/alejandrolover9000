@@ -1,33 +1,26 @@
-![image](https://github.com/user-attachments/assets/f88b3893-5bff-4031-bacc-663ee62d12df)
+![image](https://github.com/user-attachments/assets/5d2eb6ab-820c-4b9b-a4b0-97808e684cb2)
 
 
-ASHES 🦈
+𝘼𝙎𝙃/𝙎𝙃𝙄𝘼
 
-˚₊· ͟͟͞͞➳❥ heathnoah stan here
+𝚠𝚑𝚒𝚜𝚙 2 𝚒𝚗𝚝, 𝙸 𝚊𝚖 𝚞𝚜𝚞𝚊𝚕𝚕𝚢 𝚠𝚒𝚝𝚑 𝚖𝚢 𝚏𝚛𝚒𝚎𝚗𝚍𝚜 𝚜𝚘 𝙸 𝚖𝚒𝚐𝚑𝚝 𝚗𝚘𝚝 𝚛𝚎𝚜𝚙𝚘𝚗𝚍 𝚚𝚞𝚒𝚌𝚔𝚕𝚢
 
-╰┈➤ Hey there, it's ur local goober here!! Call me Ash/Asmodeous :3
+𝚃𝙳𝙸 𝚊𝚛𝚎𝚊 𝚖𝚘𝚜𝚝𝚕𝚢 <3 
 
-╰┈➤ I'm an artist and I make oc and tdi art, Im currently working on an au heh
+𝙎𝙏𝘼𝙏𝙐𝙎𝙀𝙎
 
-╰┈➤ 14yrs going strong 💪, I'm introverted and shy. INTP core gang 😎
+⛔ Busy - drawing/afk/offtab
 
-╰┈➤ You can find me in the TDI area on pt! ( Carrot farm ). mostly noah or al.
+💬 Online - feel free to chat me
 
-✎ Follow my tiktok and tumblr! @aleheathcxnloverr ( might change the name idk )
+𝘿𝙉𝙄/𝙄𝙉𝙏 𝙇𝙄𝙎𝙏
 
+DNI - 18+ pro/com/darkshippers, weirdos, creepy ppl
 
-✎ E, J, & A <3 LOVE YOU GUYS!! /PLATONIC 💕
-        
-    local aleheather/heathnoah fan
+INT - TDI, DC, cool ppl, artists, heathnoah/aleheather shippers <3
 
-˚₊· ͟͟͞͞➳❥ whisp to interact w/ me or come up! No need to worry i won't bite 😈
+![image](https://github.com/user-attachments/assets/b0352d36-25b4-4a12-9cbc-54ab5bf72073)
 
-Rant to me about anything related to TDI, I'll listen and talk with you!
+I LOVE THEM SOSOS MUCH PLEASE!!! 💞❣
 
-ALEJANDRO SIMP!!!!! LAUGHS
-
-1:35 ───ㅇ───── 3:47 That's all, might update, much love!!
-
-ᴺᴼᵂ ᴾᴸᴬᵞᴵᴺᴳ : Love Potions
-
-![image](https://github.com/user-attachments/assets/0be02a57-a0b8-43b2-b986-8e446366b1ee)
+![image](https://github.com/user-attachments/assets/5d2eb6ab-820c-4b9b-a4b0-97808e684cb2)
